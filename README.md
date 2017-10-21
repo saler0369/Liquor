@@ -122,7 +122,7 @@
 
 * #### 梦之蓝M3
 
-#### ![](/assets/400-1.jpg)![](/assets/洋河M3 -400-2.jpg)
+#### ![](/assets/400-1.jpg)![](/assets/400-2.jpg)
 
 #### ![](/assets/400-3.jpg)![](/assets/400.jpg)
 
@@ -143,7 +143,7 @@
 
 #### ![](/assets/410.jpg)![](/assets/410-1.jpg)
 
-#### ![](/assets/410-3.jpg)![](/assets/泸州老窖（窖龄90年）400-2.jpg)
+#### ![](/assets/410-3.jpg)![](/assets/410-2.jpg)
 
 * #### 泸州老窖 窖龄60年
 
