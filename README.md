@@ -4,9 +4,9 @@
 
 * #### 飞天茅台
 
-![](/assets/飞天.jpg)![](/assets/飞天0.jpg)
+![](/assets/飞天.jpg)![](/assets/1200.jpg)
 
-![](/assets/飞天2.jpg)![](/assets/飞天1.jpg)
+![](/assets/飞天2.jpg)![](/assets/1200-1.jpg)
 
 * #### 黑金茅台
 
